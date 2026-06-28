@@ -5,4 +5,4 @@ wazzap!
 </br>feel free to interact, c+h as i struggle to initiate conversations
 </br>my main intrests are badboyhalo & skeppy related content, ULTRAKILL and among us but there is much more!!!!!!!! MUCH more!!!!!!!!!!!!!!!!!!!!!!!
 </br>i can't be bothered making this fancy looking :c - check links on side for more!
-</br>![skephalo nation]([https://example.com/path/to/image.png](https://files.catbox.moe/4n18oh.jpeg)
+</br><img width="1170" height="811" alt="image" src="https://github.com/user-attachments/assets/9f71441e-b8d6-4733-b29b-d12350c344ed" />
